@@ -1,3 +1,6 @@
+https://protopedia.net/prototype/6760
+
+
 ## 🎵 CW FLOODERのテーマ
 
 > 符号を刻め　鋼のリズム  
